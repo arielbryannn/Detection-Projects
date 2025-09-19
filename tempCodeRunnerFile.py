@@ -1,0 +1,1 @@
+Lampiran berisi screenshot kamera
